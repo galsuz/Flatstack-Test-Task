@@ -17,3 +17,6 @@
 
 4. Запустите приложение. 
 
+## <a name="mem"></a> Комментарии
+
+   ![alt tag](https://ru.meming.world/images/ru/0/00/Честная_работа_Шаблон.jpg)​
